@@ -1,0 +1,1 @@
+# faruk6276.github.io
